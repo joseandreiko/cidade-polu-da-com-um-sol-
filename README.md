@@ -1,2 +1,2 @@
-# cidade-polu-da-com-um-sol-
+# cidade-polui-da-com-um-sol-
 o campo engoliu a cidade
